@@ -1,4 +1,3 @@
-![WhatsApp Image 2024-03-18 at 15 27 16_052df0fd](https://github.com/23004426/study-of-basic-gates/assets/144979327/c01d329a-1041-4eec-98a0-e4beac22e89b)![WhatsApp Image 2024-03-18 at 15 27 16_53632057](https://github.com/23004426/study-of-basic-gates/assets/144979327/046474cf-b76f-4d77-913d-f1cf6a6c8789)### study-of-basic-gates
 
 **AIM:** 
 
